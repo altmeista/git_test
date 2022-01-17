@@ -1,1 +1,1 @@
-Tschüss
+Tschüss, du Quarkbirne :)
